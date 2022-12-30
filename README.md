@@ -1,1 +1,2 @@
 # Typography-Poster
+This typography poster uses the Georgia typeface to create an eye-catching design. The bold, smooth curves of Georgia create a modern look that stands out from the crowd. The typeface has been used to create a strong and dynamic composition, with a range of sizes and weights for emphasis. The poster also features a vibrant color palette to draw the eye and create an energetic atmosphere. The overall effect is an impactful and stylish poster that is sure to make an impression.
